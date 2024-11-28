@@ -56,4 +56,6 @@ E).
 ![конфиг4_2](https://github.com/user-attachments/assets/48721014-4aca-4c1c-9c2a-d8c6b0d17b46)
 ![конфиг4_3](https://github.com/user-attachments/assets/be1cde13-9e2c-41d7-a1bd-29c51396b012)
 ![конфиг4_4](https://github.com/user-attachments/assets/a6d57fc5-4de2-4408-8274-8b4904b6488b)
+![konf4_5](https://github.com/user-attachments/assets/0c66f445-3bed-43bd-9dd9-3ab55ec4bc67)
+
 
